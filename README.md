@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there👋 I'm Muhammad Ega Dermawan
+Hi there👋 I'm Satou Kazuma
 
 
 # 💻 Tech Stack:
